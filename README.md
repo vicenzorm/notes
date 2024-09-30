@@ -1,0 +1,1 @@
+O propósito é adicionar algo todos os dias, mas outro intuito seria ajudar em trabalhos de matemática com essas ¨colas¨
